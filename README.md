@@ -1,5 +1,5 @@
 # David Ingledow
-## Lead Designer at SoPost
+## Designer at SoPost
 
 ### Introduction — Slide 2-3
 
